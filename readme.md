@@ -1,5 +1,5 @@
-![b3412a85f37b47061fcbe492cfa0fd67](https://github.com/user-attachments/assets/a490055a-fa6d-489d-a241-6c9422a3fffc)
-![pony-town-i kin him too much ughhh-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/334365a1-6d01-4aa0-9a81-b36f96c18294)
+![pony-town-richietism-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/31bce904-df85-4d13-ac85-b03b20c271dd)
+![pony-town-i kin him too much ughhh-boop-sit-blinking-padded-4x (1)](https://github.com/user-attachments/assets/dd0bd255-dcb3-465f-b3ac-c2a5c0c6f2f2)
 
 
 
