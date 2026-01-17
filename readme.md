@@ -1,6 +1,4 @@
-![2248e5d32d1524453802f8db6c6c7f56](https://github.com/user-attachments/assets/9babf10a-9cc2-4cf9-9844-439e13098883)
-
-
+![a5ecaffa95d5f6b02fae6f545db7c769](https://github.com/user-attachments/assets/2187bc5e-8938-48ea-8a09-d23a3521a825)
 
 
 ![blinkiesCafe-og](https://github.com/user-attachments/assets/d3d5d4df-5298-4f12-891f-b9525d18c814)
